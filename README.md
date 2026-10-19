@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DOMK880202HGTMXR05
+DOMK880202HGTMXR05
